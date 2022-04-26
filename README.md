@@ -1,1 +1,1 @@
-# Itmo-vkr
+# some shitty diploma
