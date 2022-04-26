@@ -1,1 +1,1 @@
-Project SDO by VKR
+# Some shitty diploma
